@@ -1,3 +1,5 @@
+From `The 21st Scientific Conference of the Israeli Psychological Association - Tel Aviv University`.
+
 "Suicide Within Therapy" – In Psychotherapy with a Hospitalized Adolescent
 
 Yoram Hazan
