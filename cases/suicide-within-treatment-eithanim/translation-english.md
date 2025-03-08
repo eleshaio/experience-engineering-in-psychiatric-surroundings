@@ -17,7 +17,7 @@ B. From “suicide within therapy” it was possible to define the state of a th
 
 It summarizes the case through the question of the place of psychotherapy in similar cases of adolescents in crisis, against the backdrop of a deep-seated disorder.
 
-Bion, W.F. 1974. Brazilian Lectures – @. Rio de Janeiro, São Paulo
-Breger, R. 1978, “Daniel Paul Schreiber: From Male to Female”
-Journal of the American Academy of Psychoanalysis, Vol. 6, No. 2, pp. 123-156
-Gorkin, M. 1985. “On the Suicide of One’s Patient.” Bulletin of the Menninger Clinic, Vol. 48, No. 1, pp. 1-9
+- Bion, W.F. 1974. Brazilian Lectures – @. Rio de Janeiro, São Paulo
+- Breger, R. 1978, “Daniel Paul Schreiber: From Male to Female”
+- Journal of the American Academy of Psychoanalysis, Vol. 6, No. 2, pp. 123-156
+- Gorkin, M. 1985. “On the Suicide of One’s Patient.” Bulletin of the Menninger Clinic, Vol. 48, No. 1, pp. 1-9
