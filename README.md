@@ -1,1 +1,1 @@
-# experience-engineering-in-psychiatric-surroundings
+# Experience Engineering in Psychiatric Surroundings
