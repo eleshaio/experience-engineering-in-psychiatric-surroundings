@@ -1,4 +1,4 @@
-# Experience Engineering in Psychiatric Settings
+# Experience Engineering in Psychiatric Surroundings
 
 This document records incidents of experience-engineering within psychology and psychiatric environments. 
 
